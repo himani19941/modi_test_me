@@ -1,0 +1,4 @@
+nc
+cndjc
+ncjksdnc
+ncjdchjdbcnm
